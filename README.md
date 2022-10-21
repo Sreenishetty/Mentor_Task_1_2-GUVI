@@ -1,1 +1,1 @@
-# Mentor_Task_1_2-GUVI
+# Mentor_Task_1&2
